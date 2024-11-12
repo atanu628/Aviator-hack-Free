@@ -12,4 +12,8 @@ Avialible for only 50 Users
 
 Dowload App Now
 
+https://blog.digitechgraph.click
+
 ![maxresdefault](https://github.com/user-attachments/assets/4d9d5181-3961-4177-89d4-07a75a0f0914)
+
+Predictor Aviator apk is a digital solution that allows you, from today, to win regularly at the casino game, Aviator, available on your various online betting sites.
