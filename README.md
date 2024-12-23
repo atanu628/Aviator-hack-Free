@@ -12,7 +12,7 @@ Avialible for only 50 Users
 
 Dowload App Now
 
-https://blog.digitechgraph.click
+(https://shorturl.at/RxbAx)
 
 ![maxresdefault](https://github.com/user-attachments/assets/4d9d5181-3961-4177-89d4-07a75a0f0914)
 
